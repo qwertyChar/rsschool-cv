@@ -1,1 +1,0 @@
-[CV](https://qwertyChar.github.io/rsschool-cv/cv)
